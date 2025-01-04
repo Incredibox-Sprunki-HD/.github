@@ -1,7 +1,7 @@
 
 # **Incredibox Sprunki HD: A High-Definition Musical Playground** 🎶✨  
 
-# Click here👉   [To Play Sprunki HD Mod](https://www.y9freegames.com/game/sprunk-phase-0-mod/)  
+# Click here👉   [ Play Sprunki HD Mod](https://www.y9freegames.com/game/sprunk-phase-0-mod/)  
 
 **Incredibox Sprunki HD** invites players to explore the vibrant world of music creation, now enhanced with HD visuals. This mod combines engaging gameplay with a polished design, making it easy and exciting to craft unique audio tracks. From harmonious melodies to rhythmic beats, every creation feels like a masterpiece in this visually striking and sonically rich experience. 🎧🎨  
 
